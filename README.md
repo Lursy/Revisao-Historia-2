@@ -24,7 +24,7 @@
 ![Europa 1914](https://conteudo.imguol.com.br/c/noticias/2014/07/22/mapa-da-europa-antes-do-inicio-da-primeira-guerra-mundial-em-1914-1406075045884_615x300.jpg.webp)
 ---
 ### Gerra
- - Alemanha avança em direção a Belgica, que estava neutra em relação ao conflito. Se preparando para atacar a França pela fronteira Belga e ocupar o país em poucos meses para evitar uma luta simultanea em duas frentes, a francesa e a russa.
+ - A Alemanha avança em direção à Bélgica, que estava neutra em relação ao conflito, preparando-se para atacar a França pela fronteira belga e ocupar o país em poucos meses, a fim de evitar uma luta simultânea em duas frentes, a francesa e a russa.
  - Os Alemães invadem a Bélgica de forma violenta, no que fica conhecido como [O estupro da Bélgica](https://pt.wikipedia.org/wiki/Massacre_de_Dinant), porém a resistência belga e o rápido ataque russo no front oriental, impediram o avanço dos Alemães em direção à França, assim, os soldados alemães são contidos pelos franceses a pouco mais de 50km de paris.
  - Itália faz acordo com Grã-Bretanha e França e entra na guerra ao lado da Triplice Entente.
  - O governo Turco faz um ataque brutal aos armênicos, executando diversos intelectuais e políticos partidarios da independência armênica, matando homens, estuprando mulheres e queimando suas casas.
