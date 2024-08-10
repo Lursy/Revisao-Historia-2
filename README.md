@@ -12,9 +12,9 @@
 - França e Grã-Bretanha formalizam aliança, para evitar um possivel avanço alemão e manter a convivência harmoniosa ( Triplice Entente ).
 - Império Otomano é fragmentado.
 - Sérvia tem interesse em anexar a bósnia-herzegovina.
-- Mão negra, grupo terrorista, é formado e na bósnia e apoiam a anexação.
+- Mão negra, grupo nacionalista, é formado na Sérvia e apoiam a anexação da bósnia.
   #### Estopin da guerra
-- Francisco Ferdinando, herdeiro do império austro-hungaro, morre após visitar a bósnia por um membro da mão negra.
+- Franz Ferdinand, herdeiro do império austro-hungaro, morre após visitar a bósnia por um membro da mão negra.
 - Império Austro-Húngaro, apoiado pela Alemanha, exige investigação por parte da sérvia em 48 horas, que é recusado pela Sérvia.
   #### Declaração de gerra
 - A Rússia, que apoiava o pan-eslavismo, por medo de que a guerra facilitasse a entrada dos austríacos nos territórios balcânicos, declarou apoio à Sérvia.
